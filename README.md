@@ -15,6 +15,8 @@
 
 <p align="center">$\color{#EDB715}{\text{ads for Regis, groupchats, hangouts ect. dni. I'm not interested.}}$</p> 
 
+<p align="center">$\color{#EDB715}{\text{I do NOT like to self insert myself in things, even though feeling left out is a lot feeling out of place is worse for me, please specifically lmk if you want me to participate ! ... Somewhat directed }}$</p> 
+
 <h1 align="center">$\color{#EDD015}{\text{Ty for reading ! Sign my ata / straw (..◜ᴗ◝..)}}$</h1>
 
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=mono&pause=1000&color=ED3315&center=true&width=435&lines=I'm+fired+up+!!;I'm+ready+for+a+ruff+ruff+rescue+!!;Wait+for+mee+!!+%EA%89%82%E0%AB%AE%28%C2%B0%E2%96%A1%C2%B0'%CB%B6%29%E1%83%90" alt="Typing SVG" align="centered"/></a> </p>
