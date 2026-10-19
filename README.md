@@ -15,7 +15,9 @@
 
 <p align="center">$\color{#EDB715}{\text{ads for Regis, groupchats, hangouts ect. dni. I'm not interested.}}$</p> 
 
-<p align="center">$\color{#EDB715}{\text{I do NOT like to self insert myself in things, even though feeling left out is a lot feeling out of place is worse for me, please specifically lmk if you want me to participate ! ... Somewhat directed }}$</p> 
+<p align="center">$\color{#EDB715}{\text{I do NOT like to self insert myself in things, even though feeling left out is a lot feeling out of place is worse for me}}$</p> 
+
+<p align="center">$\color{#EDB715}{\text{So please specifically lmk if you want me to participate ! ... Somewhat directed }}$</p> 
 
 <h1 align="center">$\color{#EDD015}{\text{Ty for reading ! Sign my ata / straw (..◜ᴗ◝..)}}$</h1>
 
