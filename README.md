@@ -2,6 +2,8 @@
 
 ## <h1 align="center">$\color{#ED3315}{\text{Pony Town's Marshall !}}$</h1>
 
+<p align="center">$\color{#ff0000}{\text{Important: IF ANYTHING, I don't sit out because I don't want to talk. I want to be included, I'm just scared and upset the more I'm left out, I'm sorry. This is heavily targeted to some friends on Pony town.}}$</p>
+
 <p align="center">$\color{#ED4B15}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! They/them}}$</p>
 
 <p align="center">$\color{#ED4B15}{\text{Marshall Fictkin + fictflect , Mirrorsharing Red yume ( from rainbow friends ) . C x H encouraged if know you ! ( in a good way ) !}}$</p>
