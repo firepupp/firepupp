@@ -2,10 +2,7 @@
 
 ## <h1 align="center">$\color{#ED3315}{\text{Pony Town's Marshall !}}$</h1>
 
-<p align="center">$\color{#ff0000}{\text{Important: IF ANYTHING, I don't sit out because I don't want to talk. I want to be included.}}$</p>
-<p align="center">$\color{#ff0000}{\text{I'm just scared and upset the more I'm left out, I'm sorry.}}$</p>
-
-<p align="center">$\color{#ED4B15}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! They/them}}$</p>
+<p align="center">$\color{#ED4B15}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! Non binary}}$</p>
 
 <p align="center">$\color{#ED4B15}{\text{Marshall Fictkin + fictflect , Mirrorsharing Red yume ( from rainbow friends ) . C x H encouraged if know you ! ( in a good way ) !}}$</p>
 <h5 align="center">$\color{#ED4B15}{\text{Though if not I will most likely be uncomfortable , ask if i don't know you ( unless c x h is stated in the name ! ) ,, (๑•́ -•̀)}}$</h5>
@@ -20,7 +17,9 @@
 
 <p align="center">$\color{#EDB715}{\text{I do NOT like to self insert myself in things, even though feeling left out is a lot feeling out of place is worse for me}}$</p> 
 
-<p align="center">$\color{#EDB715}{\text{So please specifically lmk if you want me to participate ! ... Somewhat directed }}$</p> 
+<p align="center">$\color{#EDB715}{\text{So please specifically lmk if you want me to participate ! ... Somewhat directed }}$</p>
+
+<p align="center">$\color{#EDB715}{\text{Important: If I'm friends w/ someone controversial lmk, i might not know!.}}$</p>
 
 <h1 align="center">$\color{#EDD015}{\text{Ty for reading ! Sign my ata / straw (..◜ᴗ◝..)}}$</h1>
 
