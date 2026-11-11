@@ -4,8 +4,6 @@
 
 <p align="center">$\color{#ED4B15}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! Non binary}}$</p>
 
-<p align="center">$\color{#ED4B15}{\text{I need 100 Marshall skins whisper me if you want 2 trade skin gifts PLEASS ( I make a skin for you , you make a skin for me ) . Tumblr / discord}}$</p>
-
 <p align="center">$\color{#ED4B15}{\text{Marshall Fictkin + fictflect , Softsharing Red yume ( from rainbow friends ) . C x H encouraged if know you ! ( in a good way ) !}}$</p>
 <h5 align="center">$\color{#ED4B15}{\text{Though if not I will most likely be uncomfortable , ask if i don't know you ( unless c x h is stated in the name ! ) ,, (๑•́ -•̀)}}$</h5>
 
