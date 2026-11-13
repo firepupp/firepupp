@@ -23,7 +23,8 @@
 
 <h1 align="center">$\color{#EDD015}{\text{Ty for reading ! Sign my ata / straw (..◜ᴗ◝..)}}$</h1>
 
-# <h1 align="center">$\color{#ED3315}{\text{CHECK YUMESHIP STRAW!!!! It's a wip though}}$</h1>
-<p align="center"><a href="https://redxleah.straw.page/">CLICK MEEE</a></p>
+# <h1 align="center">$\color{#ED3315}{\text{CHECK THESEEEE!!!}}$</h1>
+<p align="center"><a href="https://redxleah.straw.page/">Yumeship strawpage!</a></p>
+<p align="center"><a href="https://firepupp.straw.page/art">Marshall Art!</a></p>
 
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=mono&pause=1000&color=ED3315&center=true&width=435&lines=I'm+fired+up+!!;I'm+ready+for+a+ruff+ruff+rescue+!!;Wait+for+mee+!!+%EA%89%82%E0%AB%AE%28%C2%B0%E2%96%A1%C2%B0'%CB%B6%29%E1%83%90" alt="Typing SVG" align="centered"/></a> </p>
